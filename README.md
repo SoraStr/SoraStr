@@ -1,6 +1,1 @@
-### Welcome to my README.md!
-### 欢迎来到我的自述文件！
-
-As you know, I'm SoraStar. A Student. That's all.
-
-如你所知，我是 SoraStar，一位高中生。就这样。
+大家好哇，这里星鼠，是一位现居云南昆明的高中生兼漫展场摄！
