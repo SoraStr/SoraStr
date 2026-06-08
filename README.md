@@ -1,1 +1,1 @@
-大家好哇，这里星鼠，是一位现居云南昆明的高中生！
+High School Student
